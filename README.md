@@ -15,6 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-现代折纸爱好者。
+现代折纸爱好者，会一点点素描。
 
-Origami enthusiast.
+Origami enthusiasts who know a little bit of sketching
